@@ -1,6 +1,6 @@
 # 2019-20 NBA Power Rankings
 
-##[H]ere are my tentative rankings for the upcoming NBA season.  It's an exciting new year and there will surely be some big changes.
+## [H]ere are my tentative rankings for the upcoming NBA season.  It's an exciting new year and there will surely be some big changes.
 
 _Without further ado, here's my top 10_
 
