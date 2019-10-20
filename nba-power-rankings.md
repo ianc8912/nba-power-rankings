@@ -19,4 +19,4 @@ A personal disclosure:
 
 > As a Portlander, I am high on the Blazers this year, but I just don't think they have enough talent or depth to make a real run at the finals this year.
 
-For more great NBA content, visit my favorite site, The Ringer
+For more great NBA content, visit my favorite site [The Ringer] (https://www.theringer.com/nba)
